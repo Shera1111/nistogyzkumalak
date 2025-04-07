@@ -1,1 +1,1 @@
-# nistogyzkumalak
+# nistogyzkumalak/index.html
